@@ -1,1 +1,0 @@
-# Transversal-Duoc-FitPass
